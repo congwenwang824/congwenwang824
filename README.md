@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on helping my professor research about PDF Acciessiblity
+- 🌱 I’m currently learning programing codeing and data analysis. 
+- 💬 Ask me about how to use library sources. 
+- 📫 How to reach me: cwang6@g.emporia.edu 
+- ⚡ Fun fact: I love play all kind of sports! 
